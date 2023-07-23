@@ -1,6 +1,6 @@
 ### Abdullah Mohammod Sayid Boiah  
 <div align="center">
-<img src="https://i.ibb.co/9cMk5fR/e5f1e14c-7a35-4252-86b4-5c6b6d1a22d5.png" align="center" style="width: 100%" />
+<img src="https://i.ibb.co/9cMk5fR/e5f1e14c-7a35-4252-86b4-5c6b6d1a22d5.png" align="center"  />
 </div>  
   
 
